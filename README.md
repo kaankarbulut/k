@@ -1,0 +1,2 @@
+# k
+mavi tik istiyorum
